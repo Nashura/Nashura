@@ -12,6 +12,6 @@ I'm constantly learning, exploring new topics, and gaining experience along the 
 > [!TIP]
 > I occasionally experiment with AI and use it as a tool, but I still prefer to figure things out on my own, understand the problems I'm facing, and find solutions independently rather than relying on AI for everything.
 
-▄▀▄▀ Have a great day, everyone! ▀▄▀▄
+# ▄▀▄▀ Have a great day, everyone! ▀▄▀▄
 
-[Photo](https://imgur.com/a/54uaKom)
+![Photo](https://imgur.com/a/54uaKom)
