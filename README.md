@@ -14,4 +14,4 @@ I'm constantly learning, exploring new topics, and gaining experience along the 
 
 # ▄▀▄▀ Have a great day, everyone! ▀▄▀▄
 
-![Photo](https://cdn.discordapp.com/attachments/1356620778355036396/1559258347578982470/Banner.png?ex=6ace6bff&is=6acd1a7f&hm=555cc80b426b1c7afefd70bda8ff723e1472212f2694c8a34599eba57e9e5637&)
+![Photo](https://fotovssylku.ru/i/Banner.EEGJQ)
